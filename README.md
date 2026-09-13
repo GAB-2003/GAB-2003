@@ -1,12 +1,5 @@
 <p align="center">
-  
-
-
-https://github.com/user-attachments/assets/b77ad9e5-ff12-43ca-9780-b8f2ec0f64b4
-
-
-
-
+<img width="720" height="1280" alt="eyess" src="https://github.com/user-attachments/assets/d9c85c26-e50b-432a-81fc-47e68088bee5" />
 </p>
 
 <!--
