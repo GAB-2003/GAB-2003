@@ -1,5 +1,12 @@
 <p align="center">
-<img width="736" height="449" alt="descargar (3)" src="https://github.com/user-attachments/assets/5bd811ef-4cd5-4072-bd01-09b0e4536916" />
+  
+
+
+https://github.com/user-attachments/assets/b77ad9e5-ff12-43ca-9780-b8f2ec0f64b4
+
+
+
+
 </p>
 
 <!--
